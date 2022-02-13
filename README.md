@@ -14,7 +14,7 @@ o｡.ꈍ im usually at docks sitting by the sign with sosu,kenny,kuki,kaz ect
 
 ⊰•*⭑ i dont care what you think of me!!! also we arent friends unless you have me added, do not claim to be friends with me unless i have you added since its happened more than once (￢_￢;)
 
- ꕥ  id prefer to not get covered by strangers, not becuase its a discomfort it just annoys me when im talking to friends and itll be an invitation to hide you
+ ꕥ  id prefer to not get covered by strangers, not becuase its a discomfort it just annoys me when im talking to friends and itll be an invitation to hide you ( i have tons of people hidden because of this )
  
 »»— im apart of slimepups and tadpums so if youre in those two pls come say hi or sit with me & my friends 
 
