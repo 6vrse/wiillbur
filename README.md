@@ -1,5 +1,5 @@
 
-◜⁁∘∗🦦 i'm rau and i have no shame 
+◜⁁∘∗🦦 i'm rau im an 𝗲𝗻𝘁𝗽 and i have no shame 
 
 ❗▸ 𝗱𝗻𝗶 𝗹𝗶𝘀𝘁 : https://www.patreon.com/hahad?fan_landing=true ◂
 
