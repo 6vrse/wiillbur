@@ -27,4 +27,4 @@
 
 💣‧͙⤹⋆⸙͎۪۫｡˚ i enjoy mother mother, maretu, kikuo, glass animals, bruno mars im also a very big cat enjoyer (cats > dogs) 
 
-🦈ᐢ₎ɞ  𝗸𝘂𝗸𝗶 𝗦𝗨𝗖𝗞𝗦
+🦈ᐢ₎ɞ  repeatedly insulting me will just make me annoyed, especially if youve gotten comfortable too quickly
