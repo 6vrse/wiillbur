@@ -1,19 +1,55 @@
-🎆 (wip)
+
+
+
+⌗﹕✎ 
   - 
 
-helloo i'm rau but you can call me anything you like
->id much prefer rau..
+⌯﹕he/she & +13
 
-ENTP-T 
+⌗﹕꒷꒦꒷꒦ ﾞ
+>
 
-i get annoyed easily, i dont like getting insulted by strangers or repeatedly
+⌯﹕ENTP 
+>⌗﹕not a kinnie 
 
-#
+⌗﹕✎ i enoy,
+  -
+⌗﹕
 
-heres some things i enjoy;
-- music creators : snails house, moe shop, mitski, kikuo and maretu 
-- games i play are : ponytown, ashestown, roblox, crk & crob
-> i'm not very active on any though
-- cats.
-- characters: Hatsune Miku, Gumi, Hello Kitty, My Melody, Draculara, Toro Inoue & Nicole Watterson 
-- 
+𓄼 true crime ﾞ
+ 
+𓄼 survival games ﾞ
+
+𓄼 horror ﾞ
+
+𓄼 mystery  ﾞ
+
+𓄼 cartoon gore ﾞ
+
+𓄼 necos ﾞ
+
+⌗﹕✎  music artists i like are, 
+-
+
+✎੭﹕mitski
+
+✎੭﹕late night drive home
+
+✎੭﹕glass animals 
+
+✎੭﹕pinkpantheress
+
+✎੭﹕TV girl
+
+⌗﹕✎  useless ahh info
+-
+
+⌗५﹕i play roblox 
+>⌗﹕beariiiatt
+
+⌗५﹕i (rarely) play ponytown
+
+⌗५﹕i (rarely) crk & crob
+
+⌗५﹕instagram iz @ummrau
+>⌗﹕i dont post
