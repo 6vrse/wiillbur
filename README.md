@@ -3,7 +3,7 @@
  
 ⊹ 
 
-且 . ୨˚ 「 wil ┊ rau ┊ ash 」‧   ㅤㅤ·
+且 . ୨˚ 「 wil ┊ nate」‧   ㅤㅤ·
  
  
 ‧   
@@ -14,7 +14,7 @@
 
   ‧   ⊹ㅤ    · ㅤ
 
-д ꒰: 「 he/she 」‧
+д ꒰: 「 he/him 」‧
 
      
 ‧  三 ◍﹕ entp ﹢ sagittarius
