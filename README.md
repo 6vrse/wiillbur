@@ -3,7 +3,7 @@
  
 ⊹ 
 
-且 . ୨˚ 「 judas 」‧   ㅤㅤ·
+且 . ୨˚ 「 judas/kodriz 」‧   ㅤㅤ·
  
  
 ‧   
@@ -17,7 +17,7 @@
 д ꒰: 「 he/him 」‧
 
      
-‧  三 ◍﹕ entp ﹢ sagittarius
+‧  三 ◍﹕ taken <3 20.8.22
 
  ✧ ˚ 　· 　　 .
 
